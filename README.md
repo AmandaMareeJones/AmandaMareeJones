@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any advice you can give me as I learn
 - 📫 How to reach me via enail amandamareejones@gmail.com
 - 😄 Pronouns: Mrs
-- ⚡ Fun fact: Giraffes can run fast than a brown bear 🦒
+- ⚡ Fun fact: Giraffes can run faster than a brown bear 🦒
 
 <!---
 AmandaMareeJones/AmandaMareeJones is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
